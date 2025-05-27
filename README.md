@@ -1,7 +1,7 @@
-## ✦ 𝒲𝑒𝓁𝒸𝑜𝓂𝑒 𝒯𝑜 𝑀𝓎 𝒲𝑜𝓇𝓁𝒹 ✦
+Viadagem
 ╭──────────────────────────────────────╯•╰────────────────────────────────────────╮
 
-![](https://media1.tenor.com/m/DYeYI2quyv0AAAAC/aizen-your-welcome-sosuke-aizen.gif)
+![](https://media1.tenor.com/m/6DiM1V23hkwAAAAC/two-black-people.gif))
 
 
 「 𝓜𝓮𝓾 𝓷𝓸𝓶𝓮 𝓮 𝓡𝓪𝓯𝓪𝓮𝓵 𝓭𝓮 𝓢𝓸𝓾𝔃𝓪 𝓐𝓶𝓪𝓻𝓪𝓵 𝓖𝓪𝓫𝓪𝓻𝓻𝓸𝓷」
